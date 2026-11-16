@@ -1,6 +1,6 @@
 ## Poorya Shaghaghi
 
-**PhD Researcher** at the [Institute for Energy and Environmental Flows](https://ieef.cam.ac.uk/wps-members/poorya-shaghaghi/), University of Cambridge, and member of [Clare Hall](https://www.clarehall.cam.ac.uk/directory/poorya-shaghaghi/). Supervised by Prof. Andrew Woods.
+**PhD Researcher** at the [Institute for Energy and Environmental Flows](https://ieef.cam.ac.uk/wps-members/poorya-shaghaghi/), University of Cambridge, and member of [Clare Hall](https://www.clarehall.cam.ac.uk/directory/poorya-shaghaghi/).
 
 ### Research areas
 
